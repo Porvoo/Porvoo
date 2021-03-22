@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Porvoo
+- 👀 I’m interested in racing/gaming
+- 🌱 I’m currently learning java
+- 📫 How to reach me ... Porvoo#0420 on Discord
